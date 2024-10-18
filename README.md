@@ -1,7 +1,15 @@
 MEU NOME E WILLIAN
 ESTUDO NA ALURA
 UTILIZO ESTE ESPAÇO PARA DIVULGAR E COMPARTILHAR PROJETOS
-![](https://cdn.acritica.net/img/pc/920/600/dn_arquivo/2023/08/whatsapp-image-2023-08-09-at-122959.jpeg)
+![](https://tm.ibxk.com.br/2018/09/05/05181916219009.jpg?ims=1280x480)
+
+
+
+
+
+
+
+   
 
 perfil do $ᴡɪʟ777⚡☯
 nata pura 
